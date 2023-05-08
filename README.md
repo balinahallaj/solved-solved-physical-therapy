@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-physical-therapy
+<br>
+1. How does invoking the stretch-shorten cycle through a countermovement improve performance? How does arm swing increase vertical jumping performance. Cite specific examples from Harman et al. (1990) to support your conclusions. 2. The vertical jump is a great measure of lower body mechanical power output. However, if a physical therapist is working with an athlete rehabbing from a shoulder injury mechanical power output measured from a vertical jump test may not be an accurate evaluation of their recovery. Provide two alternative ways the therapist might consider measuring mechanical power more targeted to the shoulder.
